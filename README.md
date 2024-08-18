@@ -1,1 +1,1 @@
- <img src=".Life Timer - Brave 18-08-2024 23_48_04.png" alt="">
+ <img src="https://d138zd1ktt9iqe.cloudfront.net/media/seo_landing_files/file-a1-1603874439.png" alt="">
